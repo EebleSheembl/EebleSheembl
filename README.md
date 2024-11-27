@@ -1,4 +1,3 @@
-From Europa
-IM GONNA FUCKING DIE DOING THIS SHIT
-AAGGGGGGGGGGGGGHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHHH
-![LiveEebleReaction](https://github.com/EebleSheembl/EebleSheembl/assets/152429881/5a4f005a-8f36-4b9b-8019-1c88754c96bf)
+Creature that dwells in the most moist and soggiest caves or wrecks
+
+![EebleGamble](https://github.com/user-attachments/assets/0f4cee08-d89d-4de6-805e-f238e1ba11ac)
